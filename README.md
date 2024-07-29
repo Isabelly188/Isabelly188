@@ -1,2 +1,2 @@
 *Olá divos do canal*
-_Meu nome é Isabelly mas chama de belly que é melhó_
+_Meu nome é Isabelly mas chama de bebelly que é melhó_
